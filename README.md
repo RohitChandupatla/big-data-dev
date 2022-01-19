@@ -21,4 +21,8 @@
 • [LinkedIn](https://www.linkedin.com/in/rohitchandupatla/) </br>
 • [GitHub](https://github.com/RohitChandupatla)</br>
 
+<img src="/images/IMG_0593.jpg" width="380" height="480">
+
+
+
 
